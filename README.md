@@ -1,1 +1,0 @@
-# chanakarn.github.io
